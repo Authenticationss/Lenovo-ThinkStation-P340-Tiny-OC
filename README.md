@@ -1,0 +1,1 @@
+# Lenovo-ThinkStation-P340-Tiny-OC
